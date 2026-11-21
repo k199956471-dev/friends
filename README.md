@@ -20,4 +20,4 @@ She fights like she’s ready to break or be broken, putting every ounce of stre
 Then she catches the shift in his face—fear giving way to sadness.
 Her knees give out. She drops to the stone, crying hard, her nails catching against the skin of her own neck until beads of blood well up as she yells in anger.
 For the first few seconds, the shock hits him like whiplash, as if someone just dragged him straight into freezing water. He holds his ground.
-"Sunno, sab sahi hai."
+"Sunno, sab sahi hai." 
